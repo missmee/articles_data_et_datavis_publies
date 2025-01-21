@@ -18,6 +18,9 @@ https://fr.euronews.com/2022/10/21/inflation-ou-se-loge-laugmentation-des-prix-e
 **Quels sont les pays européens qui dépendent le plus du nucléaire et du gaz ?**  
 https://fr.euronews.com/my-europe/2022/01/04/quels-sont-les-pays-europeens-qui-dependent-le-plus-du-nucleaire-et-du-gaz 
 
+**Comment développer l'usage quotidien du vélo dans les campagnes ?**  
+https://fr.euronews.com/next/2021/09/17/comment-developper-l-usage-quotidien-du-velo-dans-les-campagnes
+
 **Coronavirus : combien de morts en plus par rapport aux années précédentes en Europe ?**  
 https://fr.euronews.com/2020/07/02/le-coronavirus-responsable-d-une-surmortalite-de-plus-de-200-000-deces-en-europe
 
