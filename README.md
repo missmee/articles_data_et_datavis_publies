@@ -42,4 +42,4 @@ https://fr.euronews.com/2018/11/12/se-souvenir-de-nos-poubelles-nucleaires-penda
 **Deux exemples de visualisations pour les équipes en lice dans l'Euro 2016**
 ![alt text](https://github.com/missmee/articles_publies/blob/main/1720122145136.jpg?raw=true)
 
-![alt text](https://github.com/missmee/articles_publies/blob/main/1720122145136.jpg?raw=true)
+![alt text](https://github.com/missmee/articles_publies/blob/main/1720122145246.jpg?raw=true)
