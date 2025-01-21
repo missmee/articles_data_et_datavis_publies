@@ -1,5 +1,8 @@
 # Sélection d'articles publiés
 
+**Festival Lumière - La parité rattrape un retard immense dans les festivals de cinéma**  
+https://fr.euronews.com/culture/2023/10/20/festival-lumiere-la-parite-rattrape-un-retard-immense-dans-les-festivals-de-cinema
+
 **Les prénoms les plus donnés en Europe en 2021**  
 https://fr.euronews.com/culture/2023/03/16/les-prenoms-les-plus-donnes-en-europe-en-2021 
 
