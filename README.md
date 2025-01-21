@@ -38,3 +38,8 @@ https://fr.euronews.com/2020/06/03/france-l-acces-au-droit-des-personnes-etrange
 
 **Comment se souvenir de nos déchets nucléaires pendant 100 000 ans ?**  
 https://fr.euronews.com/2018/11/12/se-souvenir-de-nos-poubelles-nucleaires-pendant-100-000-ans
+
+**Deux exemples de visualisations pour les équipes en lice dans l'Euro 2016**
+![alt text](https://github.com/missmee/articles_publies/blob/main/1720122145136.jpg?raw=true)
+
+![alt text](https://github.com/missmee/articles_publies/blob/main/1720122145136.jpg?raw=true)
