@@ -1,5 +1,8 @@
 # Sélection d'articles publiés
 
+**Les prénoms les plus donnés en Europe en 2021**  
+https://fr.euronews.com/culture/2023/03/16/les-prenoms-les-plus-donnes-en-europe-en-2021 
+
 **Parité en Europe : les femmes et les mères perdantes au travail**  
 https://fr.euronews.com/2023/03/08/parite-les-femmes-et-les-meres-perdantes-au-travail 
 
@@ -14,6 +17,9 @@ https://fr.euronews.com/my-europe/2022/12/07/ue-les-accidents-mortels-du-travail
 
 **Quels pays ont le taux d'inflation le plus haut et le plus bas en Europe ?**  
 https://fr.euronews.com/2022/10/21/inflation-ou-se-loge-laugmentation-des-prix-en-france-a-malte-en-hongrie-et-en-estonie 
+
+**Parité dans les parlements de l'Union européenne : le plafond de verre bien en place**  
+https://fr.euronews.com/my-europe/2022/07/05/parite-dans-les-parlements-de-lunion-europeenne-le-plafond-de-verre-bien-en-place
 
 **Quels sont les pays européens qui dépendent le plus du nucléaire et du gaz ?**  
 https://fr.euronews.com/my-europe/2022/01/04/quels-sont-les-pays-europeens-qui-dependent-le-plus-du-nucleaire-et-du-gaz 
