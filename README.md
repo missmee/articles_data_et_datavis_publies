@@ -1,4 +1,4 @@
-# Sélection d'articles publiés
+# Sélection d'articles data publiés
 
 **Festival Lumière - La parité rattrape un retard immense dans les festivals de cinéma**  
 https://fr.euronews.com/culture/2023/10/20/festival-lumiere-la-parite-rattrape-un-retard-immense-dans-les-festivals-de-cinema
