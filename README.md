@@ -1,5 +1,8 @@
 # Sélection d'articles data publiés
 
+**Quelle taille fait la bande de Gaza ?**
+https://fr.euronews.com/2023/10/20/quelle-taille-fait-la-bande-de-gaza
+
 **Festival Lumière - La parité rattrape un retard immense dans les festivals de cinéma**  
 https://fr.euronews.com/culture/2023/10/20/festival-lumiere-la-parite-rattrape-un-retard-immense-dans-les-festivals-de-cinema
 
