@@ -30,6 +30,9 @@ https://fr.euronews.com/next/2023/02/16/qui-sont-les-personnes-agees-qui-travail
 **Quels sont les pays européens qui dépendent le plus du nucléaire et du gaz ?**  
 https://fr.euronews.com/my-europe/2022/01/04/quels-sont-les-pays-europeens-qui-dependent-le-plus-du-nucleaire-et-du-gaz 
 
+**[Fact check] Energies renouvelables : la France, seul pays de l'UE à n'avoir pas atteint l'objectif**
+https://fr.euronews.com/2022/02/18/fact-checking-yannick-jadot-energies-renouvelables-france-objectif
+
 **Comment développer l'usage quotidien du vélo dans les campagnes ?**  
 https://fr.euronews.com/next/2021/09/17/comment-developper-l-usage-quotidien-du-velo-dans-les-campagnes
 
