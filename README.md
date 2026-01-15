@@ -3,10 +3,11 @@
 **Journalistes tués à Gaza** (illustration par avec Agathe Delrue) 
 https://www.instagram.com/artefr/p/DQTwWaGiGXz/
 
-**Taux d'emploi chez les hommes et les femmes selon le nombre d'enfants**
+**Taux d'emploi chez les hommes et les femmes selon le nombre d'enfants**  (illustration par avec Agathe Delrue) 
 https://www.instagram.com/p/DKHGldVI7_P/?igsh=N2U0bHZ0N25sdW5u
 
-**Les vagues de chaleur depuis 2000**
+**Les vagues de chaleur depuis 2000**  
+![Fréquence, durée et température moyennee des vagues de chaleur en France depuis 1947](https://github.com/missmee/articles_publies/blob/main/canicules.jpg?raw=true)
 
 **Quelle taille fait la bande de Gaza ?**  
 https://fr.euronews.com/2023/10/20/quelle-taille-fait-la-bande-de-gaza
@@ -54,6 +55,6 @@ https://fr.euronews.com/2020/06/03/france-l-acces-au-droit-des-personnes-etrange
 https://fr.euronews.com/2018/11/12/se-souvenir-de-nos-poubelles-nucleaires-pendant-100-000-ans
 
 **Deux exemples de visualisations statiques pour les équipes en lice dans l'Euro 2016**
-![alt text](https://github.com/missmee/articles_publies/blob/main/1720122145136.jpg?raw=true)
+![Statistiques de l'équipe de France pour l'Euro 2016](https://github.com/missmee/articles_publies/blob/main/1720122145136.jpg?raw=true)
 
-![alt text](https://github.com/missmee/articles_publies/blob/main/1720122145246.jpg?raw=true)
+![Statistiques de l'équipe d'Allemagne pour l'Euro 2016](https://github.com/missmee/articles_publies/blob/main/1720122145246.jpg?raw=true)
