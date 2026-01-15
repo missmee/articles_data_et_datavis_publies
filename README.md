@@ -1,6 +1,6 @@
 # Sélection d'articles data publiés
 
-**Journalistes tués à Gaza** (illustration par avec Agathe Delrue) 
+**Journalistes tués à Gaza** (illustration par avec Agathe Delrue)  
 https://www.instagram.com/artefr/p/DQTwWaGiGXz/
 
 **Taux d'emploi chez les hommes et les femmes selon le nombre d'enfants**  (illustration par avec Agathe Delrue) 
