@@ -1,5 +1,13 @@
 # Sélection d'articles data publiés
 
+**Journalistes tués à Gaza** (illustration par avec Agathe Delrue) 
+https://www.instagram.com/artefr/p/DQTwWaGiGXz/
+
+**Taux d'emploi chez les hommes et les femmes selon le nombre d'enfants**
+https://www.instagram.com/p/DKHGldVI7_P/?igsh=N2U0bHZ0N25sdW5u
+
+**Les vagues de chaleur depuis 2000**
+
 **Quelle taille fait la bande de Gaza ?**  
 https://fr.euronews.com/2023/10/20/quelle-taille-fait-la-bande-de-gaza
 
