@@ -1,12 +1,12 @@
 # Sélection d'articles data publiés
 
-**Journalistes tués à Gaza** (illustration par avec Agathe Delrue)  
+**Journalistes tués à Gaza** (Arte/Arte Info - illustration par Agathe Delrue)  
 https://www.instagram.com/artefr/p/DQTwWaGiGXz/
 
-**Taux d'emploi chez les hommes et les femmes selon le nombre d'enfants**  (illustration par avec Agathe Delrue) 
+**Taux d'emploi chez les hommes et les femmes selon le nombre d'enfants**  (Arte/Arte Info - illustration par Agathe Delrue) 
 https://www.instagram.com/p/DKHGldVI7_P/?igsh=N2U0bHZ0N25sdW5u
 
-**Les vagues de chaleur depuis 2000**  
+**Les vagues de chaleur depuis 2000** (pour France 3 Rhône-Alpes)  
 ![Fréquence, durée et température moyennee des vagues de chaleur en France depuis 1947](https://github.com/missmee/articles_publies/blob/main/canicules.jpg?raw=true)
 
 **Quelle taille fait la bande de Gaza ?**  
