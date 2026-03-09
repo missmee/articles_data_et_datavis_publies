@@ -1,4 +1,4 @@
-# Sélection d'articles data publiés
+# Sélection d'articles data ou long format publiés
 
 **Municipales : dans 70% des villages du Rhône, le premier défi reste de trouver des candidats** (Rue89 Lyon)  
 https://www.rue89lyon.fr/2026/02/24/municipales-dans-70-des-villages-du-rhone-le-premier-defi-reste-de-trouver-des-candidats/
