@@ -12,7 +12,7 @@ https://www.instagram.com/artefr/p/DQTwWaGiGXz/
 **Effet du changement climatique sur la culture de la vigne** (Arte/Arte Info - illustration par Agathe Delrue)  
 https://www.instagram.com/p/DPWm4XwlbMG/?igsh=b25vZmpua3R0aHk1
 
-**La pénalité maternelle dans l'emploi** (Arte/Arte Info - illustration par Agathe Delrue) 
+**La pénalité maternelle dans l'emploi** (Arte/Arte Info - illustration par Agathe Delrue)  
 https://www.instagram.com/p/DKHGldVI7_P/?igsh=N2U0bHZ0N25sdW5u  
 https://www.instagram.com/p/DLPM2XAI7YM/?igsh=bWhmczh6eDQ0Y24z  
 https://www.instagram.com/p/DLzP7qeIjze/?igsh=bGpmdnk0NWlvOGFj
