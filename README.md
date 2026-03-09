@@ -3,11 +3,19 @@
 **Municipales : dans 70% des villages du Rhône, le premier défi reste de trouver des candidats** (Rue89 Lyon)
 https://www.rue89lyon.fr/2026/02/24/municipales-dans-70-des-villages-du-rhone-le-premier-defi-reste-de-trouver-des-candidats/
 
+**Green kidneys: solving nephrology’s climate paradox**
+https://www.youris.com/health/diseases/green-kidneys-solving-nephrology-s-climate-paradox.kl
+
 **Journalistes tués à Gaza** (Arte/Arte Info - illustration par Agathe Delrue)  
 https://www.instagram.com/artefr/p/DQTwWaGiGXz/
 
-**Taux d'emploi chez les hommes et les femmes selon le nombre d'enfants**  (Arte/Arte Info - illustration par Agathe Delrue) 
-https://www.instagram.com/p/DKHGldVI7_P/?igsh=N2U0bHZ0N25sdW5u
+**Effet du changement climatique sur la culture de la vigne** (Arte/Arte Info - illustration par Agathe Delrue)
+https://www.instagram.com/p/DPWm4XwlbMG/?igsh=b25vZmpua3R0aHk1
+
+**La pénalité maternelle dans l'emploi** (Arte/Arte Info - illustration par Agathe Delrue) 
+https://www.instagram.com/p/DKHGldVI7_P/?igsh=N2U0bHZ0N25sdW5u  
+https://www.instagram.com/p/DLPM2XAI7YM/?igsh=bWhmczh6eDQ0Y24z  
+https://www.instagram.com/p/DLzP7qeIjze/?igsh=bGpmdnk0NWlvOGFj
 
 **Les vagues de chaleur depuis 2000** (pour France 3 Rhône-Alpes)  
 ![Fréquence, durée et température moyennee des vagues de chaleur en France depuis 1947](https://github.com/missmee/articles_publies/blob/main/canicules.jpg?raw=true)
