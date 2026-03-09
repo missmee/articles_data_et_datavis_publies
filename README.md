@@ -1,15 +1,15 @@
 # Sélection d'articles data publiés
 
-**Municipales : dans 70% des villages du Rhône, le premier défi reste de trouver des candidats** (Rue89 Lyon)
+**Municipales : dans 70% des villages du Rhône, le premier défi reste de trouver des candidats** (Rue89 Lyon)  
 https://www.rue89lyon.fr/2026/02/24/municipales-dans-70-des-villages-du-rhone-le-premier-defi-reste-de-trouver-des-candidats/
 
-**Green kidneys: solving nephrology’s climate paradox**
+**Green kidneys: solving nephrology’s climate paradox**  
 https://www.youris.com/health/diseases/green-kidneys-solving-nephrology-s-climate-paradox.kl
 
 **Journalistes tués à Gaza** (Arte/Arte Info - illustration par Agathe Delrue)  
 https://www.instagram.com/artefr/p/DQTwWaGiGXz/
 
-**Effet du changement climatique sur la culture de la vigne** (Arte/Arte Info - illustration par Agathe Delrue)
+**Effet du changement climatique sur la culture de la vigne** (Arte/Arte Info - illustration par Agathe Delrue)  
 https://www.instagram.com/p/DPWm4XwlbMG/?igsh=b25vZmpua3R0aHk1
 
 **La pénalité maternelle dans l'emploi** (Arte/Arte Info - illustration par Agathe Delrue) 
