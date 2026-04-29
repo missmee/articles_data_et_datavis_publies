@@ -1,5 +1,8 @@
 # Sélection d'articles data ou long format publiés
 
+**Accidents à vélo : les rues les plus dangereuses de Lyon en mal d’aménagements** (Mediacités)  
+https://www.mediacites.fr/enquete/lyon/2026/04/28/accidents-a-velo-les-rues-les-plus-dangereuses-de-lyon-en-mal-damenagements/
+
 **Municipales : dans 70% des villages du Rhône, le premier défi reste de trouver des candidats** (Rue89 Lyon)  
 https://www.rue89lyon.fr/2026/02/24/municipales-dans-70-des-villages-du-rhone-le-premier-defi-reste-de-trouver-des-candidats/
 
