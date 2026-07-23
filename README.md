@@ -1,5 +1,11 @@
 # Sélection d'articles data ou long format publiés
 
+**Ce que gagnent vraiment les 2000 élus de la Métropole et des communes du Grand Lyon**  
+https://www.mediacites.fr/enquete/lyon/2026/07/14/ce-que-gagnent-vraiment-les-2000-elus-de-la-metropole-et-des-communes-du-grand-lyon/  
+
+**Long Covid: healing the broken link between research and diagnosis**  
+https://www.youris.com/health/diseases/long-covid-healing-the-broken-link-between-research-and-diagnosis.kl
+
 **Accidents à vélo : les rues les plus dangereuses de Lyon en mal d’aménagements** (Mediacités)  
 https://www.mediacites.fr/enquete/lyon/2026/04/28/accidents-a-velo-les-rues-les-plus-dangereuses-de-lyon-en-mal-damenagements/
 
