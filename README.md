@@ -50,6 +50,9 @@ https://fr.euronews.com/my-europe/2022/12/07/ue-les-accidents-mortels-du-travail
 **Parité dans les parlements de l'Union européenne : le plafond de verre bien en place**  
 https://fr.euronews.com/my-europe/2022/07/05/parite-dans-les-parlements-de-lunion-europeenne-le-plafond-de-verre-bien-en-place
 
+**Quelles sont les propositions des candidats à la présidentielle française sur l'Union européenne ?**  
+https://fr.euronews.com/2022/04/08/quelles-sont-les-propositions-des-candidats-a-la-presidentielle-francaise-sur-l-union-euro
+
 **Quels pays ont le taux d'inflation le plus haut et le plus bas en Europe ?**  
 https://fr.euronews.com/2022/10/21/inflation-ou-se-loge-laugmentation-des-prix-en-france-a-malte-en-hongrie-et-en-estonie 
 
