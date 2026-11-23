@@ -1,5 +1,8 @@
 # Sélection d'articles data ou long format publiés
 
+**La petite enfance aux femmes, la sécurité aux hommes : dans le Grand Lyon, un partage des rôles entre élus toujours très genré**  
+https://www.mediacites.fr/enquete/lyon/2026/10/13/la-petite-enfance-aux-femmes-la-securite-aux-hommes-dans-le-grand-lyon-un-partage-des-roles-entre-elus-toujours-tres-genre/
+
 **Ce que gagnent vraiment les 2000 élus de la Métropole et des communes du Grand Lyon**  
 https://www.mediacites.fr/enquete/lyon/2026/07/14/ce-que-gagnent-vraiment-les-2000-elus-de-la-metropole-et-des-communes-du-grand-lyon/  
 
